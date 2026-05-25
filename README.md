@@ -7,3 +7,4 @@
 ![Alt Text](https://64.media.tumblr.com/612a0503ad9620e5d9974f02db92d1db/fdf97dbfa61d1c16-c6/s1280x1920/bfb97131ed6fe826778a27e89b081cf327ef174a.pnj)
 ![Alt Text](https://64.media.tumblr.com/1cc6ba81b97f6c7fd8eab7f53dacc02e/2214b4372c2397e2-de/s1280x1920/d270b6f8c4ebac66fbebc02656cbb00e8653eefa.pnj)
 # 𝑅𝑜𝓈𝑒 𝒬𝓊𝒶𝓇𝓉𝓏
+![Alt Text](https://64.media.tumblr.com/495722f158442241ea2752a38b36d17c/aadc400bd0892302-2f/s1280x1920/8506374ebcb997238caa7770434ffca393c51967.pnj)
